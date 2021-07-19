@@ -40,4 +40,4 @@ My core strengths are in problem solving and fast learning.
 
 ## English: 
 
-** B1 **
+**B1**
